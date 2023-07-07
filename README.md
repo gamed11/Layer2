@@ -1,2 +1,5 @@
-# Layer2
-Layer2 plan for my own blockchain
+# Layer2 for etherium
+more fat tx for Layer1
+coming soon
+direct message to CEO
+Private Company
